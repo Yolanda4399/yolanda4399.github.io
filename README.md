@@ -1,2 +1,5 @@
 # yolanda4399.github.io
-尼嚎！
+
+hi~~
+these are my idol
+and i like them very much
