@@ -1,5 +1,11 @@
 # yolanda4399.github.io
 
 hi~~
-these are my idol
-and i like them very much
+i am a student from basis G7.5
+i like to drawing and playing golf
+nice to meet you~~~~~~~~~~
+
+
+
+
+
