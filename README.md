@@ -26,7 +26,7 @@ i like to drawing and playing golf
 
 
 
-this is my favourite idol!
+
 
 
 
